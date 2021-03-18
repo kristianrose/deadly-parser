@@ -1,7 +1,7 @@
 
 ########################################################################
-
-# Eiii lammer da Casa Blanca
+# By Kristian
+# Eiii lammer 
 # Kiba o codigo e vai me mamar para sempre! Alem de ser lammer
 
 ########################################################################
